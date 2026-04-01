@@ -1,4 +1,4 @@
-
+fling things and people rare Executor: auto-fling & inf-power is the most reliable executor for fling things and people! With auto-fling and inf-power, you'll unlock new levels of gameplay potential. Our executor is built for speed, stability, and stealth. Enjoy hassle-free execution, regular updates, and dedicated support.
 
 
 ---
